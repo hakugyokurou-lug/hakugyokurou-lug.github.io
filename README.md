@@ -1,1 +1,1 @@
-# hakugyokurou-lug.github.io
+# 白玉楼製作所 lug
