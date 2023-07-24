@@ -1,0 +1,1 @@
+# hakugyokurou-lug.github.io
